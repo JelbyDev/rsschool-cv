@@ -1,4 +1,4 @@
-# Evgeny Ipatov
+# Evgeniy Ipatov
 
 ## Contact information:
 
